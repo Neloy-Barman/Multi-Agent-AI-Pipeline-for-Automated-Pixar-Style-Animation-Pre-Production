@@ -1,0 +1,7 @@
+# World Cup Final Stadium Night
+
+**From script details:** Script states night stadium with blazing floodlights and penalty spot twelve yards from goal and large roaring crowd and ball flying past far post. Invented clear weather and striped turf and concrete tiers with blue seating and scoreboard for scale and open space for running and kneeling.
+
+---
+
+A Pixar 3D animation style environment of a huge World Cup final soccer stadium at night, shown from a high 3/4 angle that lets two walls of the space show at once. It is night on a clear dry night, and the mood is cool. Bright white floodlights blaze down from four tall corner towers and wash the whole field in crisp even light. In the foreground smooth green striped turf stretches forward with a crisp white penalty spot and a small round black and white soccer ball resting on the spot. In the midground a large white goal with an upright frame and soft white net stands centered on the white goal line with wide open space around it for running and kneeling. In the background steep rounded seating tiers rise on all sides in bands of soft blue and light gray filled with distant blurred crowds abstracted into soft masses of color while a large dark scoreboard glows above the far stands. The floor is smooth striped green turf with clean white line markings and the surrounding walls are smooth light gray concrete with rounded edges and soft blue trim. The whole scene is a clean smooth 3D render with soft stylized lighting. No named characters, no text.

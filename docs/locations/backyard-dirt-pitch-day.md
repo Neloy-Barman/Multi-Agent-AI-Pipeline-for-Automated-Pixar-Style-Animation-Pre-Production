@@ -1,0 +1,7 @@
+# Backyard Dirt Pitch Day
+
+**From script details:** Script states sunlit backyard in favela in daytime with packed dirt ground and makeshift goal made of two bricks and wooden door for standing by. Invented midday timing and clear sunny weather and pastel house walls and blue fence and plants and rooftops for joyful feel and open space for juggling and kicking.
+
+---
+
+A Pixar 3D animation style environment of a small sunlit backyard dirt soccer pitch in a hillside neighborhood, shown from a low 3/4 angle that lets two walls of the space show at once. It is bright midday on a clear sunny dry day, and the mood is warm. Warm golden sunlight pours down from high above and fills the whole yard with soft glowing brightness. In the foreground smooth packed tan dirt spreads flat and open for running and kicking with a small scuffed brown and white soccer ball resting near the center. In the midground two small square red bricks sit spaced apart on the dirt to form a low makeshift goal with clear open space behind it for scoring. In the background a smooth pastel yellow house wall with a warm wooden door stands along one side while a low pastel blue fence runs along the other side with soft green potted plants and colorful hanging laundry above and rounded rooftops beyond. The floor is smooth packed light brown dirt with soft rounded edges and the walls are smooth matte plaster in warm yellow and soft blue with rounded wooden trim. The whole scene is a clean smooth 3D render with soft stylized lighting. No people, no text.

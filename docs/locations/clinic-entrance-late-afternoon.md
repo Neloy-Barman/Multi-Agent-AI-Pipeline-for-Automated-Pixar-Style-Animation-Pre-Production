@@ -1,0 +1,7 @@
+# Clinic Entrance Late Afternoon
+
+**From script details:** Script states clinic entrance in late afternoon with golden light and wide steps and sidewalk and street for exiting and walking away. Invented clear weather and glass double doors and bench and tree and lamppost and pastel storefronts for calm hopeful feel.
+
+---
+
+A Pixar 3D animation style environment of a quiet city clinic entrance with sidewalk and street, shown from a low 3/4 angle that lets two walls of the space show at once. It is late afternoon on a clear dry day, and the mood is warm. Low golden sunlight glows from the side and washes the whole front in soft warm light. In the foreground wide smooth light gray stone steps lead up to tall glass double doors with rounded wooden frames and a small side ramp with open space on the steps for pausing. In the midground a wide gray sidewalk stretches past with a rounded wooden bench and a small round green street tree in a square planter beside a smooth lamppost. In the background a calm empty asphalt street curves away lined with soft pastel storefronts and rounded green trees and low apartment blocks under a pale gold sky. The floor is smooth light gray stone on the steps and sidewalk with dark gray asphalt on the street and the walls are smooth cream plaster with warm wood trim and large clear glass panels. The whole scene is a clean smooth 3D render with soft stylized lighting. No people, no text.

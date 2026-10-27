@@ -1,0 +1,7 @@
+# Psychologists Office
+
+**From script details:** Script states calm modern office in daytime with soft afternoon light through blinds and worn leather chair facing desk with water glass and notepad. Invented second chair and bookshelf and plants and rug and wood floor and cream walls to complete warm calm function and allow sitting and leaning forward.
+
+---
+
+A Pixar 3D animation style environment of a calm modern psychologists office, shown from a low 3/4 angle that lets two walls of the space show at once. It is a calm afternoon on a clear sunny day, and the mood is warm. Soft golden sunlight filters through white venetian blinds on the left wall and spreads gently across the whole room. In the foreground center a rounded mustard yellow leather armchair with soft cushions and short wooden legs sits angled toward the center with open space in front for sitting heavily and leaning forward. In the midground a smooth dark wooden desk holds a clear water glass and a cream notepad with a dark pen while a rounded teal armchair sits opposite the desk with space between for conversation. In the background a low wooden bookshelf filled with colorful rounded books runs along the back wall with a large leafy green plant in the corner and a framed picture of soft green hills hanging above the shelf. The floor is warm light wood partly covered by a soft round teal rug and the walls are smooth cream plaster with rounded white trim. The whole scene is a clean smooth 3D render with soft stylized lighting. No people, no text.
